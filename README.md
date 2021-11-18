@@ -1,0 +1,1 @@
+Estou sentindo falta de monitoria no curso.
